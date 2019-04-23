@@ -1,2 +1,6 @@
-# ALLways
-ALLways website
+THEME SHARED ON THEMELOCK.COM
+
+
+ RETAIL ONLY THEMES AND TEMPLATES/ THEMELOCK.COM
+
+ www.themelock.com
